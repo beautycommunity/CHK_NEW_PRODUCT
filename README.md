@@ -1,0 +1,1 @@
+# CHK_NEW_PRODUCT
